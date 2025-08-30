@@ -1,2 +1,2 @@
 # Oficina-2
-Equipe:
+Equipe:Samuel,Edson e Dalila 
